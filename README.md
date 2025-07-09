@@ -12,12 +12,12 @@ Yellow, black. Yellow, black.
 Ooh, black and yellow!
 Let's shake it up a little.
 Barry! Breakfast is ready!
-Ooming!
+Coming!
 Hang on a second.
 Hello?
 - Barry?
 - Adam?
-- Oan you believe this is happening?
+- Can you believe this is happening?
 - I can't. I'll pick you up.
 Looking sharp.
 Use the stairs. Your father
@@ -119,7 +119,7 @@ the Krelman.
 - Oatches that little strand of honey
 that hangs after you pour it.
 Saves us millions.
-Oan anyone work on the Krelman?
+Can anyone work on the Krelman?
 Of course. Most bee jobs are
 small ones. But bees know
 that every small job,
@@ -265,7 +265,7 @@ Step to the side.
 - What'd you get?
 - Picking crud out. Stellar!
 Wow!
-Oouple of newbies?
+Couple of newbies?
 Yes, sir! Our first day! We are ready!
 Make your choice.
 - You want to go first?
@@ -373,7 +373,7 @@ See that? It's a little bit of magic.
 That's amazing. Why do we do that?
 That's pollen power. More pollen, more
 flowers, more nectar, more honey for us.
-Oool.
+Cool.
 I'm picking up a lot of bright yellow.
 Oould be daisies. Don't we need those?
 Oopy that visual.
@@ -388,10 +388,10 @@ I don't know, but I'm loving this color.
 It smells good.
 Not like a flower, but I like it.
 Yeah, fuzzy.
-Ohemical-y.
-Oareful, guys. It's a little grabby.
+Chemical-y.
+Careful, guys. It's a little grabby.
 My sweet lord of bees!
-Oandy-brain, get off there!
+Candy-brain, get off there!
 Problem!
 - Guys!
 - This could be bad.
